@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Mukund Kumar.
+- I’m interested in programming and doing animation.
